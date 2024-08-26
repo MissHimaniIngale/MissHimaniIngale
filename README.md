@@ -3,7 +3,7 @@
 - 🌱 I’m currently studiing at final year computer engineering 
 - 💞️ I’m looking to collaborate on various projects 
 - 📫 How to reach me on https://www.linkedin.com/in/himaniingale86230?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
-- 😄 Pronouns: MissInfiniteGoals
+- 😄 Pronouns: She/ her
 - ⚡ Fun fact: open book with lots of secrets
 
 <!---
